@@ -3,14 +3,12 @@
 
 Dear github.com/aharon,
 
-You have a github username I would absoultely LOVE to have. My name's Aharon too!
+My name's Aharon too! You have a github username I would absoultely LOVE to have.
 
-Please email me at aharon.wasserman@gmail if there's any chance you would be willing to strike a deal for your username.
+If there's any chance you would be willing to strike a deal for your username -- please email me:
 
-From one Aharon to another.
+aharon.wasserman[at]gmail.com
 
-Do me a solid.
-
-With hope,
+From one Aharon to another. Do me a solid.
 
 Aharon
